@@ -1,0 +1,6 @@
+Biografie
+Portfolio
+Werkervaring
+Kennins webtechnologieën
+Softwarekennis
+Contactinformatie
